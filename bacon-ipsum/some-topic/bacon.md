@@ -1,0 +1,1 @@
+Pork loin prosciutto capicola kielbasa tail pancetta kevin. Bacon jerky tenderloin pig. Short ribs cupim ball tip tri-tip, beef ribs flank jowl tail strip steak kevin ham chicken alcatra fatback. Biltong andouille salami tenderloin swine t-bone cow kevin sirloin burgdoggen leberkas ham hock alcatra shank porchetta.
